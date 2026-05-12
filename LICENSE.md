@@ -1,4 +1,4 @@
-#  
+#  elite Script for adopt me offers the most advanced adopt me Script, with esp and fly. Perfect for dominating any match.
 
 
 
